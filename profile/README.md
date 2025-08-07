@@ -16,6 +16,7 @@ We believe in a world where everyone can master their own digital universe — a
 
 - 🌍 Website: [https://1boxstudios.com](https://1boxstudios.com)
 - ✉️ Email: [contact@1boxstudios.com](mailto:contact@1boxstudios.com)
+- 🧑‍💻 Career Platform: [https://career.1boxstudios.com/](https://career.1boxstudios.com/)
 
 ---
 
