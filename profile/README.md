@@ -15,6 +15,7 @@ We believe in a world where everyone can master their own digital universe — a
 ## 🌐 Connect with Us
 
 - Website: [https://1boxstudios.com](https://1boxstudios.com)
+- Facebook Page: [https://facebook.com/1boxstudios/](https://facebook.com/1boxstudios/)
 - Linkedin: [https://linkedin.com/company/1boxstudiosvn/](https://linkedin.com/company/1boxstudiosvn/)
 - Email: [contact@1boxstudios.com](mailto:contact@1boxstudios.com)
 - Career Platform: [https://career.1boxstudios.com/](https://career.1boxstudios.com/)
